@@ -1,4 +1,4 @@
-## Resume:
+## 📝 Resume:
 (https://ap.wps.com/cms/docs/d/cbCaet6Luv1oXcpD?platform=pc&refer=copylink)
 
 ## 🌐 Socials:
